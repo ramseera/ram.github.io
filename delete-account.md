@@ -29,4 +29,4 @@ Please note that deleting your account is **permanent and irreversible**. Consid
 
 ## Support
 
-If you need help or have questions before deleting your account, contact our support team at support@example.com.
+If you need help or have questions before deleting your account, contact our support team at rakiaprdc@gmail.com
